@@ -1,1 +1,1 @@
-# UtkirbekYuldoshev96-JS-Qudrat-Abdurahimov-masalalar-tuplami-yechimlari-
+# JS-Qudrat-Abdurahimov-masalalar-tuplami-yechimlari-
